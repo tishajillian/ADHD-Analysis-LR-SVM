@@ -1,2 +1,2 @@
-Trailer Video: https://youtu.be/cPz5yscS4gU?si=ULGqkwUhgaJmUWeN
-Presentation Video: https://youtu.be/oO_nsHJvb5Q?si=_MkCtHW-tRLe6Ug6
+<p><b>Trailer Video:</b> https://youtu.be/cPz5yscS4gU?si=ULGqkwUhgaJmUWeN</p>
+<p><b>Presentation Video:</b> https://youtu.be/oO_nsHJvb5Q?si=_MkCtHW-tRLe6Ug6</p>
